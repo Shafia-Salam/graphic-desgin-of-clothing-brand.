@@ -1,5 +1,10 @@
+# Links
+1. Instagram: Attires for Muslimmah
+ https://www.instagram.com/attiresformuslimah?igsh=YWlwamxwMXJ5YXJm
+2. Website: https://afm.com.pk/
+3. Facebook:  Attires for Muslimmah https://www.facebook.com/share/YEQypcvwZsu66E4r/?mibextid=qi2Omg 
 # Graphic-Design-of-clothing-brand
-I have made graphics for clothing brand name 'Attairs for Muslimmah'. In this project i took the picture of their products and by making some different themes.The brand specializes in products like hijab ,jilbab,namazchaddar,abaya,modest dress and accessories.
+I have made graphics for clothing brand name 'Attires for Muslimmah'. In this project i took the picture of their products and by making some different themes.The brand specializes in products like hijab ,jilbab,namazchaddar,abaya,modest dress and accessories.
 # Product Description
 Jilbab refers to full-lenght outer garment traditionally covering the head and hands,worn in public by some Muslim women.
 Hijab signifies the modest dress code and specifically refers to a scarf that covers the hairs.
